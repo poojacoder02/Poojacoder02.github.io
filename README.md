@@ -25,3 +25,7 @@ SPEAKER SB SIR
 
 Sir is a ex principal of a college.
 Sir is very good and charming personaliy. Sir do not talk much but Sir tells us about If you want succed in life then Follow the mantra "NO TENSION ,FULL ATTENTION" Sir also tells us that always faith in god ..Sir also tells that "ਮਿਹਨਤ ਮੇਰੀ, ਰਹਿਮਤ ਤੇਰੀ".....I really enjoy his lecture and his lecture is such a knowledgeable....
+
+ SPEAKER HARPREET KAUR GREWAL
+
+ Mam is a H.O.D in applied sciences.Mam shares idea that god is one and we have to respect all the religions.Mam tells us that everyone cannot get the all the facilities .So we have to manage the all things.She told us "KISI KO MUKAMMAL JAHAAN NHI MILTA, KISI KO JAMEEN NHI MILTI KISI KO AASMAAN NHI MILTA" ...
