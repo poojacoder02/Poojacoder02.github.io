@@ -1,13 +1,14 @@
 # Poojacoder02.github.io
 This is my first GitHub page
 i love to play kabaddi.
+
 ABOUT MYSELF
+
 I passed my 12 class from Meritorious school Ferozepur.I am currently persuing btech cse in GNE college Ludhiana.
 My first day in this college become a memorable and i really enjoy that day....The speakers that day encouraging us and motivating us. They all are teach us that how can you acheive your goals and also taught that how you spent these 4 years in this college.All the speakers gave us the mantra to become successful in life.I am new in coding.I hope this journey become very memorable...
 Thanks 🙏 AND Have a Fantastic day.
 
 ABOUT INDUCTION PROGRAM
-
 
 DAY 1
 
@@ -26,7 +27,7 @@ SPEAKER SB SIR
 Sir is a ex principal of a college.
 Sir is very good and charming personaliy. Sir do not talk much but Sir tells us about If you want succed in life then Follow the mantra "NO TENSION ,FULL ATTENTION" Sir also tells us that always faith in god ..Sir also tells that "ਮਿਹਨਤ ਮੇਰੀ, ਰਹਿਮਤ ਤੇਰੀ".....I really enjoy his lecture and his lecture is such a knowledgeable....
 
- SPEAKER HARPREET KAUR GREWAL
+ #SPEAKER HARPREET KAUR GREWAL
 
  Mam is a H.O.D in applied sciences.Mam shares idea that god is one and we have to respect all the religions.Mam tells us that everyone cannot get the all the facilities .So we have to manage the all things.She told us "KISI KO MUKAMMAL JAHAAN NHI MILTA, KISI KO JAMEEN NHI MILTI KISI KO AASMAAN NHI MILTA".....
 
