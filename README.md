@@ -41,8 +41,7 @@ Sir is very good and charming personaliy. Sir do not talk much but Sir tells us 
 |--------------|----------------------|
 |DR.H.S.Rai    | Controller of examination|
 |DR.Arvind Dhingra| TAC       |
-|DR.Parminder Singh|Dean Students Welfare|
-
+|DR.Parminder Singh|Dean Students Welfare
 
 
 
