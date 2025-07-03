@@ -43,6 +43,6 @@ Sir is very good and charming personaliy. Sir do not talk much but Sir tells us 
 |DR.Arvind Dhingra| TAC       |
 |DR.Parminder Singh|Dean Students Welfare
 
-
-
+I completed my course in excel...  
+![image error](Pooja_Rani20240724-73-15y5jhx.jpg) 
 
